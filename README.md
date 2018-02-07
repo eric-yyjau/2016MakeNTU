@@ -19,3 +19,5 @@
 [Video 1](https://youtu.be/M6WjQt5bn1g)
 
 [Video 2](https://youtu.be/CSpgEror7io)
+
+[Press](https://www.slideshare.net/YiLinJuang/makentu) p.13
